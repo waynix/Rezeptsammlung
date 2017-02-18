@@ -23,14 +23,15 @@
 + 1 TL        Salz
 + 2 	        Lorbeerblätter (Daun Salam), indonesische
 + 4 	        Kaffir-Limettenblätter (Daun djeruk purut), frisch oder getrocknet
-            Sojasauce, süße (Ketjap manis)
++            Sojasauce, süße (Ketjap manis)
 + n. B.	    Wasser
 
 ## Zubereitung
 Fleisch in 3cm große Würfel schneiden. Wenn man will kann man diese vorher braun anbraten.
 ### Würzpaste herstellen:
 Zwiebeln, Knoblauch, Ingwer, schälen und zusammen mit etwas Kokosmilch,  dem Chilli und dem Galgant pürieren. 
-Öl in einem Wok(oder einer Pfanne) erhitzen und nach und nach die Paste und die Gewürze hinzugeben(Koriander, Kreuzkümmel, Sambal Oelek, Kurkuma, Zimt, Gewürznelken, Chilipulver, Tamarindenpaste).
+Öl in einem Wok(oder einer Pfanne) erhitzen und nach und nach die Paste und die Gewürze hinzugeben
+(Koriander, Kreuzkümmel, Sambal Oelek, Kurkuma, Zimt, Gewürznelken, Chilipulver, Tamarindenpaste, Sojasoße).
 Das Zitronengras mit dem Messergriff flachklopfen.
 ### Jetzt kochen
 Das Fleisch, die Kokosmilch, Zitronengras und die Blätter hinzugeben und das ganze mindestens 1 1/2h (besser noch 4h) köcheln lassen bis kaum noch Soße da ist.
