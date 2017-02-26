@@ -17,6 +17,7 @@ Baisermasse auf einem Blech verteilen und bei 140 Grad 40 Minuten backen.
 + Baiser(siehe oben)
 + Himbeeren, gefroren
 + 2-3 Becher Schlagsahne
+
 ### Zubereitung
 2-3 Stunden vor dem Verzehr Zubereiten. Die Schlagsahne steif schlagen.
 Himbeeren, Sahne, und zerbröselten Baiser abwechselnd in eine Schüssel schichten.
