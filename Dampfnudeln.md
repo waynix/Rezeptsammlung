@@ -9,6 +9,7 @@
 + 1/2 TL 	Salz
 + 80 g		Butter
 + 1			Ei
+
 Für die Pfanne:
 + 100 g		Butter
 + 125 ml    Milch
