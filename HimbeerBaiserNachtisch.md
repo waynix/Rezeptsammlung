@@ -9,7 +9,7 @@ Er kann auch auf Vorrat hergestellt werden wenn man z.B. für eine Tiramisu ;-) 
 + 100g Mandeln, gehobelt
 
 ### Zubereitung
-Einschnee steiff schlagen, dann den Zucker hinzugeben und weiter schlagen.
+Einschnee steif schlagen, dann den Zucker hinzugeben und weiter schlagen.
 Baisermasse auf einem Blech verteilen und bei 140 Grad 40 Minuten backen.
 
 ## Der eigentliche Nachtisch
@@ -19,6 +19,6 @@ Baisermasse auf einem Blech verteilen und bei 140 Grad 40 Minuten backen.
 + 2-3 Becher Schlagsahne
 
 ### Zubereitung
-2-3 Stunden vor dem Verzehr Zubereiten. Die Schlagsahne steif schlagen.
+2-3 Stunden vor dem Verzehr zubereiten. Die Schlagsahne steif schlagen.
 Himbeeren, Sahne, und zerbröselten Baiser abwechselnd in eine Schüssel schichten.
 Danach die 2-3 Stunden stehen lassen und als Nachtisch servieren.
