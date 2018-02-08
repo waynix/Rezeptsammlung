@@ -18,9 +18,9 @@ Für die Pfanne:
 
 
 ## Zubereitung
-Hefe, Milch und Zucker mischen. Restliche Zutaten mischen. Hefeteig eine Stunde gehen lassen bis er auf die doppelte Größe aufgegangen ist.
+Hefe, Milch und Zucker mischen. Restliche Zutaten dazu mischen. Den Teig eine Stunde gehen lassen bis er etwa auf die doppelte Größe aufgegangen ist.
 9 gleich große Teile abstechen und zu runden Kugeln formen. Etwas flachdrücken und wieder gehen lassen.
 
 Butter, Zucker und Milch in einer Pfanne zerlassen. Die Nudeln einsetzen und bei mittlerer Hitze etwa 30 Minuten garen. Deckel nicht anheben sonst fallen die Dampfnudeln zusammen.
 
-Als beilage eignen sich Vanillesoße, Weinschaumsoße und Pflaumenkompott.
+Als Beilage eignen sich Vanillesoße, Weinschaumsoße und Pflaumenkompott.
