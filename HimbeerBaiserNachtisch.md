@@ -6,11 +6,13 @@ Er kann auch auf Vorrat hergestellt werden wenn man z.B. für eine Tiramisu ;-) 
 ### Zutaten
 + 4 Eiweiß
 + 250g Zucker
-+ 100g Mandeln, gehobelt
++ 100g Mandeln, gehobelt(Mandelblätter)
 
 ### Zubereitung
 Einschnee steif schlagen, dann den Zucker hinzugeben und weiter schlagen.
-Baisermasse auf einem Blech verteilen und bei 140 Grad 40 Minuten backen.
+Baisermasse auf einem Blech zu einer etwa 15mm dicken Schicht verteilen.
+Die Mandelblätter auf den Baiser streuen.
+Schließlich bei 140 Grad 40 Minuten backen.
 
 ## Der eigentliche Nachtisch
 ### Zutaten
